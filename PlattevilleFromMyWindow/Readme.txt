@@ -1,1 +1,1 @@
-Photos of U W Platteville from my office
+Photos of U W Platteville from my office window
